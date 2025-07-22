@@ -1,1 +1,0 @@
-# gabrielisaacmorenosanluis.github.io
